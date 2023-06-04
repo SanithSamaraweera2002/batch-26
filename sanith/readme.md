@@ -1,2 +1,1 @@
 Sanith Samaraweera
-Sanith
